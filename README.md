@@ -8,7 +8,7 @@ Many people are getting jobs they don't really like. Based on a person's interes
 
 ## Background
 
-Many people are getting jobs they don't really like. According to a global survey<sup>[2](#fn2)</sup> about job satisfaction from 2013, more than half of employees are unhappy in their jobs.
+Many people are getting jobs they don't really like. According to a global survey<sup>[2](#fn2)</sup> about job satisfaction from 2013, almost half of employees are unhappy in their jobs.
 Often poor job choices are made due to students' lack of knowledge about certain jobs when deciding on their future career.
 Which problems does your idea solve? How common or frequent is this problem? What is your personal motivation? Why is this topic important or interesting?
 
